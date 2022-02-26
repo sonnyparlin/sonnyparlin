@@ -23,9 +23,3 @@ I don't use use FB, IG or Twitter for the same reason I don't play with dolls. C
 ### Technologies
 
 C++, Python, React, Node, HTML5, CSS, Linux, Pine, TA (Technical Analysis)
-$10-worth New Year Gift for You
-Make your 2022 productive
-with LINER Premium
-
-Dismiss
-Open the gift
