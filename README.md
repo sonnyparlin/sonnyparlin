@@ -22,4 +22,4 @@ I don't use use FB, IG or Twitter for the same reason I don't play with dolls. C
 
 ### Technologies
 
-C++, Python, React, Node, Web3, Solidity, Pine TA (Technical Analysis), HTML5, CSS, Linux
+C++, Python, React, Node, Web3, Solidity, Pine TA (Technical Analysis), HTML5, CSS, Linux, Choking people unconscious, breaking limbs.
