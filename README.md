@@ -11,7 +11,7 @@
 
 ### Connect with me:
 
-[website](https://sonnyparlin.com) /
+[website](http://sonnyparlin.com) /
 [telegram](https://t.me/sonnygrapples) /
 [youtube](https://www.youtube.com/c/sonnyparlin)
 ---
