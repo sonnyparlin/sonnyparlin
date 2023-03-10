@@ -11,9 +11,9 @@
 
 ### Connect with me:
 
-[website](http://sonnyparlin.com) /
-[telegram](https://t.me/sonnygrapples) /
-[youtube](https://www.youtube.com/c/sonnyparlin) /
+[Website](http://sonnyparlin.com) /
+[Telegram](https://t.me/sonnygrapples) /
+[YouTube](https://www.youtube.com/c/sonnyparlin) /
 [Twitter](https://twitter.com/santinoparlucci) /
 [Discord](discordapp.com/users/sonnyjitsu#5631)
 ---
