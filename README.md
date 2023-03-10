@@ -13,8 +13,8 @@
 
 [website](http://sonnyparlin.com) /
 [telegram](https://t.me/sonnygrapples) /
-[youtube](https://www.youtube.com/c/sonnyparlin)
-[Twitter](https://twitter.com/santinoparlucci)
+[youtube](https://www.youtube.com/c/sonnyparlin) /
+[Twitter](https://twitter.com/santinoparlucci) /
 [Discord](discordapp.com/users/sonnyjitsu#5631)
 ---
 
