@@ -3,8 +3,7 @@
 
 ## I'm a Husband, Father, Developer, and Brazilian Jiu Jitsu Black Belt!!
 
-- 🔭 Check out my crypto guide: [A Beginner's guide to crypto investing](https://bit.ly/cryptoguide2022)!
-- 🌱 I’m currently learning to day trade futures.
+- 🌱 I’m currently learning to day trade futures and options.
 - 🥅 2023 Goals: Become a better day trader.
 - ⚡ Fun fact: I'm an accomplished musician, [check out my music](https://music.youtube.com/playlist?list=PLj9lh13xPM4NtMGzpbghwBlWZ_3LaUk_P&feature=share).
 
