@@ -1,7 +1,7 @@
 # Hi there, I'm [Sonny](https://sonnyparlin.com) 👋 
 
 
-## I'm a Husband, Father, Developer, and Brazilian Jiu Jitsu Black Belt!!
+## I'm a husband, father, competitive shooter, and Brazilian Jiu Jitsu black belt!!
 
 - 🌱 I’m currently learning to day trade futures and options.
 - 🥅 2023 Goals: Become a better day trader.
