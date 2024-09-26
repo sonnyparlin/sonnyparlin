@@ -9,11 +9,8 @@
 
 ### Connect with me:
 
-[Website](http://sonnyparlin.com) /
-[Telegram](https://t.me/sonnygrapples) /
-[YouTube](https://www.youtube.com/c/sonnyparlin) /
-[Twitter](https://twitter.com/santinoparlucci) /
-[Discord](discordapp.com/users/sonnyjitsu#5631)
+[IG](https://instagram.com/sonnygrapples)
+[Twitter](https://twitter.com/cozywithyourmom) /
 ---
 
 ### Technologies
