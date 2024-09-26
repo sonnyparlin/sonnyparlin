@@ -3,8 +3,8 @@
 
 ## I'm a husband, father, competitive shooter, and Brazilian Jiu Jitsu black belt!!
 
-- 🌱 I’m currently learning to day trade futures and options.
-- 🥅 2023 Goals: Become a better day trader.
+- 🌱 Stopped being a nerd in 2015
+- 🥅 2024 goals, smash more people.
 - ⚡ Fun fact: I'm an accomplished musician, [check out my music](https://music.youtube.com/playlist?list=PLj9lh13xPM4NtMGzpbghwBlWZ_3LaUk_P&feature=share).
 
 ### Connect with me:
