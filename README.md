@@ -9,10 +9,10 @@
 
 ### Connect with me:
 
-[IG](https://instagram.com/sonnygrapples) /
-[Twitter](https://twitter.com/cozywithyourmom) /
+[Instagram](https://instagram.com/sonnygrapples) /
+[Twitter](https://twitter.com/cozywithyourmom)
 ---
 
-### Technologies
+### Technologies I'm currently in favor with
 
-C++, Python, React, Node, Web3, Solidity, Pine TA (Technical Analysis), HTML5, CSS, Linux, Choking people unconscious, breaking limbs.
+Python, React, Node, Web3, Solidity, Pine TA (Technical Analysis), HTML5, CSS, Linux, Choking people unconscious, breaking limbs.
