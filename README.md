@@ -9,7 +9,7 @@
 
 ### Connect with me:
 
-[IG](https://instagram.com/sonnygrapples)
+[IG](https://instagram.com/sonnygrapples) /
 [Twitter](https://twitter.com/cozywithyourmom) /
 ---
 
