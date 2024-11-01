@@ -1,7 +1,7 @@
 # Hi there, I'm [Sonny](https://sonnyparlin.com) 👋 
 
 
-## I'm a husband, father, competitive shooter, and Brazilian Jiu Jitsu black belt!!
+## I'm a husband, father, and Brazilian Jiu Jitsu black belt!!
 
 - 🌱 Stopped being a nerd in 2015
 - 🥅 2024 goals, smash more people.
